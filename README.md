@@ -1,6 +1,6 @@
 # Remessa-Online
 Remessa Online
-Ao longo de 4 anos de história, e aperfeiçoamos nossos processos, constituindo cada vez mais nossos conjuntos abertos ao redor do mundo. Esta peça como peça as pessoas que tem sucesso a nossa equipe. Saímos de 3 objetivos mais de 200 pessoas na busca deste tempo que colaborativamente na busca de nossos objetivos cada vez mais ousados.
+ao longo de 4 anos de história, e aperfeiçoamos nossos processos, constituindo cada vez mais nossos conjuntos abertos ao redor do mundo. Esta peça como peça as pessoas que tem sucesso a nossa equipe. Saímos de 3 objetivos mais de 200 pessoas na busca deste tempo que colaborativamente na busca de nossos objetivos cada vez mais ousados.
 
 Nessa trajetória, nos tornamos a ponte pessoas e a realização de seus sonhos: morar no exterior, viajar o mundo, realizar tratamentos fora do Brasil, dentre tantas outras. Você decide o objetivo e a gente te ajuda a romper as fronteiras.
 
